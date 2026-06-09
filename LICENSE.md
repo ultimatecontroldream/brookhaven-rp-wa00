@@ -1,4 +1,4 @@
-#  
+#  rare Scripts for brookhaven rp offers the most advanced brookhaven rp Script, with auto-farm and auto-heal. Perfect for dominating any match.
 
 
 
